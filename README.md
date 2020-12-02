@@ -4,7 +4,7 @@
 </p>
 
 
-### I'm TaenyKim. 😀
+### I'm Codeway. 😀
 
 Interested in
 
